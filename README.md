@@ -1,0 +1,2 @@
+# bearkid
+kiếm tiền
